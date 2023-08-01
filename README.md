@@ -69,7 +69,3 @@ Content
 <p dir="ltr"><b id="docs-internal-guid-64244aaf-7fff-5350-484c-bebcb91271c0">Certainly! Kilt Guide offers customization options for kilts, allowing customers to personalize their garments with various design elements and details.</b></p>
 
 <p>&nbsp;</p>
-
-
-
- or Type your keyword. Press 'Tab' or 'Enter' on your keyboard to confirm.
